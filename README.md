@@ -1,0 +1,1 @@
+A delicate, flowing script with wispy strokes, resembling ink swirling in water. Each letter is slightly translucent, with soft gradients fading into the background, evoking a dreamy, otherworldly feel.
